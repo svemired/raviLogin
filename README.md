@@ -7,8 +7,5 @@ When is your last working day
 Vcube technologies
 All are workig professionals
 welcome to worls 
-hjghjkkkl
-hghjjhjkkj
-nbbnhghgchg
-gfhgjhjkkj
-hghghjjhj
+Go to settings to activate windows
+ISKON -Kukatpally
